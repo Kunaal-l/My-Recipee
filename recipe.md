@@ -1,0 +1,1 @@
+Boil some water add milk in it after a few mins add tea leaes and sugar in it let it boil for me time nd there your tra is done
